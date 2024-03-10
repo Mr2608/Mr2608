@@ -3,7 +3,7 @@
 </div>
 
 
-[![](https://visitcount.itsvg.in/api?id=Mr-2608&icon=2&color=0)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=Mr2608&icon=2&color=0)](https://visitcount.itsvg.in)
 
 
 # 💫 About Me:
